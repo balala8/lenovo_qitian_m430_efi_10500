@@ -1,0 +1,1 @@
+# lenovo_qitian_m430_efi_10500
